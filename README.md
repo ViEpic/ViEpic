@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Victor
+- 🌱 I’m currently learning Data Science
+- 📫 How to reach me: t.me/VictorAndreevichK
+- 💻⚓🎲🍀
